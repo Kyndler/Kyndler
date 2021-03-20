@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kyndler
+- 👀 I’m interested in a bunch of stuff
+- 🌱 I’m currently learning in college
+- 💞️ I’m looking to collaborate on nothing for now. Just learnin the ropes
